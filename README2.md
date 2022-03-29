@@ -4,6 +4,6 @@ This is another readme.
 ehehsefhasoidfh
 
 
-😂😂
+😂� 
 
-Mmm....
+I deleted Mm....and i laughing emoji
